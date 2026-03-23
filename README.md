@@ -16,7 +16,7 @@ We are **DearmHigh**, a global talent solutions company dedicated to connecting 
 
 ### **1. Profile Setup & Preparation (My Role)**
 
-* Coordinate logistics such as **background checks, scheduling interviews, and recruiter communication**.
+* Coordinate logistics such as **background checks, scheduling interviews, and recruiter communication** with US guy's profile and Linkedin.
 * Guide candidates through **interview preparation and onboarding steps**.
 
 ---
