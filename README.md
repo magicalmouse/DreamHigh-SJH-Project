@@ -1,6 +1,6 @@
 # **DreamHigh-SJH Project**
 
-## **Unlock High-Paying DevOps & Cloud Engineering Roles in the U.S.**
+## **Unlock High-Paying DevOps & Cloud Engineering Roles in the U.S. Only looking for an Indian or Pakistani**
 
 Are you a **native English speaker** with strong expertise in **DevOps and Cloud Engineering**? We help skilled engineers secure **high-quality, remote U.S.-based contracts** while working from anywhere in **India and Pakistan**.
 
@@ -42,7 +42,7 @@ Are you a **native English speaker** with strong expertise in **DevOps and Cloud
 
 * **Month 1 (Trial): $250**
 * **Month 2 (Trial): $500**
-* **Month 3+: $750/month**
+* **Month 3+: $1000/month**
 
 This phased structure ensures smooth onboarding, training, and alignment before full engagement.
 
@@ -50,8 +50,8 @@ This phased structure ensures smooth onboarding, training, and alignment before 
 
 ### **Performance Bonus (Per Successful Placement)**
 
-* **$2,000 per successfully secured DevOps/Cloud role**
-* Example: **2 placements = $4,000 bonus**
+* **$2,500 per successfully secured DevOps/Cloud role**
+* Example: **2 placements = $5,000 bonus**
 * Paid **in addition to base salary**
 
 Your total earnings can grow significantly based on performance.
@@ -91,7 +91,7 @@ Your total earnings can grow significantly based on performance.
 Let’s connect and explore this opportunity.
 
 **Company**: DreamHigh
-**Email**: [victor.peed@dreamhigh.space](mailto:victor.peed@dreamhigh.space)
+**Email**: [victor.peed@dreamhigh.space](mailto:victor.peed@dreamhigh.space) & victormiller0831@gmail.com
 **Telegram**: @verifdev
 **Schedule a Call**: [https://calendly.com/victor-peed-dreamhigh/30min](https://calendly.com/victor-peed-dreamhigh/30min)
 
